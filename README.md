@@ -1,2 +1,2 @@
 # url-sniper
-prim yok
+prim yok demiştim ;)))
